@@ -1,6 +1,6 @@
 [1]:https://www.project-syndicate.org/commentary/social-exclusion-chemical-dependency-by-markus-heilig-1-2016-04
 
-[On addiction][1] many text have been writen. 
+Na [temat][1] uzależnień pisze się coraz ciekawsze rzeczy. Do naszych terapeutów AA to dotrze za jakieś pół wieku. Takie życie.
 
  I don’t know any neuroscientists who would deny the importance of social processes in driving addiction. But once we have paid lip service to this idea, most of us go back to the lab and study addiction the way we have for decades: one brain at a time. 
  
